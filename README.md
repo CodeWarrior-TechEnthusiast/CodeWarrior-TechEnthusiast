@@ -1,5 +1,5 @@
 ### Hi there 👋
-https://user-images.githubusercontent.com/93964854/147858383-f89bd066-c751-4680-97c3-ddfa75458876.mp4
+![4-_2_ (1)](https://user-images.githubusercontent.com/93964854/147882329-44b7a6f4-586c-4d01-b43e-fd6373f43c99.gif)
 <!--
 **advaithpagidipally/advaithpagidipally** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
